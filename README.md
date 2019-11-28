@@ -1,1 +1,1 @@
-# pesquisa_empirica_em_direito_unb
+# Dados utilizados na pesquisa "AVALIAÇÃO METODOLÓGICA DAS PESQUISAS EMPÍRICAS EM DIREITO: ANÁLISE DOS TRABALHOS SOBRE O PROCESSO DECISÓRIO JUDICIAL" de Tasso Iuri Lopes de Miranda
